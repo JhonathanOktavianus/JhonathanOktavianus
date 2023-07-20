@@ -4,7 +4,7 @@ Perkenalkan nama saya **Jhonathan Oktavianus Lumban Tobing**.
 
 Saya **Mahasiswa Lulusan IT** di [Universitas Kristen Maranatha](https://www.maranatha.edu/).
 
-Jika kalsisn tertarik untuk berkenalan dengan saya, silakan ikuti akun [LinkedIn](https://www.linkedin.com/in/jhonathan-oktavianus-7852ab227/) ku ya.
+Jika kalian tertarik untuk berkenalan dengan saya, silakan ikuti akun [LinkedIn](https://www.linkedin.com/in/jhonathan-oktavianus-7852ab227/) ku ya.
 
 <p align="left">
 <a href="https://github.com/JhonathanOktavianus">
